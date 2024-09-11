@@ -1,2 +1,2 @@
 # Ridddle
-I have no life but i can die, what am i?
+what has a neck but no head?
